@@ -1,4 +1,4 @@
-<h2 align="left">- Payan - | Te amo MarbellaBB</h2>
+<h2 align="left">- Payan --</h2>
 
 ###
 
@@ -9,11 +9,7 @@
 
 ###
 
-<img align="right" height="150" src="https://i.pinimg.com/originals/d6/10/e1/d610e160925e44ea55130954ce39c4dc.gif"  />
-
-###
-
-<div align="left">
+<div align="center">
   <img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/csharp/csharp-original.svg" height="30" alt="csharp logo"  />
   <img width="12" />
   <img src="https://cdn.jsdelivr.net/gh/devicons/devicon/icons/python/python-original.svg" height="30" alt="python logo"  />
@@ -31,7 +27,15 @@
 
 ###
 
-<div align="left">
+<img align="left" height="152" src="https://media.tenor.com/DlIPyEZq_DcAAAAd/scissor-seven.gif"  />
+
+###
+
+<img align="right" height="150" src="https://thumbs.gfycat.com/PhonyFrequentBluefish-size_restricted.gif"  />
+
+###
+
+<div align="center">
   <a href="https://www.instagram.com/untalpayan/" target="_blank">
     <img src="https://img.shields.io/static/v1?message=Untalpayan&logo=instagram&label=&color=FFFFFF&logoColor=black&labelColor=&style=for-the-badge" height="35" alt="instagram logo"  />
   </a>
@@ -39,6 +43,7 @@
     <img src="https://img.shields.io/static/v1?message=qTruman&logo=twitch&label=&color=000000&logoColor=white&labelColor=&style=for-the-badge" height="35" alt="twitch logo"  />
   </a>
 </div>
+
 
 ###
 
