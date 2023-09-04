@@ -31,7 +31,7 @@
 
 ###
 
-<img align="right" height="150" src="https://64.media.tumblr.com/0512b8827c2280cf292a514d09bdbd02/45a0ce7c25f99d01-37/s540x810/542868829ae8802350b3f2311896bcb88304f2fd.gif"  />
+<img align="right" height="150" src="https://media.tenor.com/Sm7ae_0WuPMAAAAC/horimiya-hori.gif"  />
 
 ###
 
