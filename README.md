@@ -1,4 +1,4 @@
-<h2 align="left">- Payan - | Te amo MarbellaBB</h2>
+<h2 align="left">- Payan -</h2>
 
 ###
 
