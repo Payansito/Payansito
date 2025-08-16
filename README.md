@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Las Piedras Rodantes** — El Tri · *40 Años Vol. 2*](https://www.last.fm/music/El+Tri/_/Las+Piedras+Rodantes)  
+[**Quiero Ver** — Café Tacvba · *SINO*](https://www.last.fm/music/Caf%C3%A9+Tacvba/_/Quiero+Ver)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
