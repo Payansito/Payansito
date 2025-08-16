@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Un Deseo** — Cultura Profética · *M.O.T.A.*](https://www.last.fm/music/Cultura+Prof%C3%A9tica/_/Un+Deseo)  
+[**Amigos y Enemigos (feat. Bad Bunny & Almighty) (Remix)** — Trap Capos, Noriel, Bad Bunny, Almighty · *Amigos y Enemigos (feat. Bad Bunny & Almighty) (Remix)*](https://www.last.fm/music/Trap+Capos,+Noriel,+Bad+Bunny,+Almighty/_/Amigos+y+Enemigos+(feat.+Bad+Bunny+&+Almighty)+(Remix))  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
