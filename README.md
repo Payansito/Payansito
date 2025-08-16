@@ -37,5 +37,5 @@ Español (nativo) · Inglés (B2)
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
 [**Amigos y Enemigos (feat. Bad Bunny & Almighty) (Remix)** — Trap Capos, Noriel, Bad Bunny, Almighty · *Amigos y Enemigos (feat. Bad Bunny & Almighty) (Remix)*](https://www.last.fm/music/Trap+Capos,+Noriel,+Bad+Bunny,+Almighty/_/Amigos+y+Enemigos+(feat.+Bad+Bunny+&+Almighty)+(Remix))  
-_Reproduciendo ahora_
+_2025-08-16 07:24_
 <!--LASTFM:END-->
