@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Tu sin mi** — Dread Mar I · *Vivi En Do*](https://www.last.fm/music/Dread+Mar+I/_/Tu+sin+mi)  
-_Reproduciendo ahora_
+[**Y Mi Corazón Contento** — Zona Ganjah · *Sanazion*](https://www.last.fm/music/Zona+Ganjah/_/Y+Mi+Coraz%C3%B3n+Contento)  
+_2025-08-16 06:08_
 <!--LASTFM:END-->
