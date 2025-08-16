@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Mi amor** — Dread Mar I · *AMOR-ES*](https://www.last.fm/music/Dread+Mar+I/_/Mi+amor)  
+[**Un Deseo** — Cultura Profética · *M.O.T.A.*](https://www.last.fm/music/Cultura+Prof%C3%A9tica/_/Un+Deseo)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
