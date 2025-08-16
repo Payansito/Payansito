@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Tus Ojos** — Los Cafres · *Suena La Alarma*](https://www.last.fm/music/Los+Cafres/_/Tus+Ojos)  
-_Reproduciendo ahora_
+[**Necesito Tu Amor** — Fidel Nadal · *Vibraciones Positivas*](https://www.last.fm/music/Fidel+Nadal/_/Necesito+Tu+Amor)  
+_2025-08-16 12:45_
 <!--LASTFM:END-->
