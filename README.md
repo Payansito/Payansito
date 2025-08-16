@@ -37,5 +37,5 @@ Español (nativo) · Inglés (B2)
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
 [**Las Flores** — Café Tacvba · *Re*](https://www.last.fm/music/Caf%C3%A9+Tacvba/_/Las+Flores)  
-_Reproduciendo ahora_
+_2025-08-16 22:36_
 <!--LASTFM:END-->
