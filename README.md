@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Y Mi Corazón Contento** — Zona Ganjah · *Sanazion*](https://www.last.fm/music/Zona+Ganjah/_/Y+Mi+Coraz%C3%B3n+Contento)  
+[**Tus Ojos** — Los Cafres · *Suena La Alarma*](https://www.last.fm/music/Los+Cafres/_/Tus+Ojos)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
