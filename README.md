@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Las Flores** — Café Tacvba · *Re*](https://www.last.fm/music/Caf%C3%A9+Tacvba/_/Las+Flores)  
-_2025-08-15 21:38_
+[**Vasos Vacíos (Remasterizado 2008)** — Los Fabulosos Cadillacs · *Vasos Vacíos*](https://www.last.fm/music/Los+Fabulosos+Cadillacs/_/Vasos+Vac%C3%ADos+(Remasterizado+2008))  
+_2025-08-16 00:12_
 <!--LASTFM:END-->
