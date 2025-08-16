@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Mil Horas (1994 Remastered Version)** — Los Abuelos de la Nada · *Los Abuelos De La Nada 1 (1994 Remastered Version)*](https://www.last.fm/music/Los+Abuelos+de+la+Nada/_/Mil+Horas+(1994+Remastered+Version))  
+[**Tu sin mi** — Dread Mar I · *Vivi En Do*](https://www.last.fm/music/Dread+Mar+I/_/Tu+sin+mi)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
