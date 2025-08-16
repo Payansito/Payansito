@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Amigos y Enemigos (feat. Bad Bunny & Almighty) (Remix)** — Trap Capos, Noriel, Bad Bunny, Almighty · *Amigos y Enemigos (feat. Bad Bunny & Almighty) (Remix)*](https://www.last.fm/music/Trap+Capos,+Noriel,+Bad+Bunny,+Almighty/_/Amigos+y+Enemigos+(feat.+Bad+Bunny+&+Almighty)+(Remix))  
-_2025-08-16 07:24_
+[**Vasos Vacíos (Remasterizado 2008)** — Los Fabulosos Cadillacs · *Vasos Vacíos*](https://www.last.fm/music/Los+Fabulosos+Cadillacs/_/Vasos+Vac%C3%ADos+(Remasterizado+2008))  
+_Reproduciendo ahora_
 <!--LASTFM:END-->
