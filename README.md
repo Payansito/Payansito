@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Afuera** — Caifanes · *El Nervio Del Volcan*](https://www.last.fm/music/Caifanes/_/Afuera)  
+[**Las Piedras Rodantes** — El Tri · *40 Años Vol. 2*](https://www.last.fm/music/El+Tri/_/Las+Piedras+Rodantes)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
