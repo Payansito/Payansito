@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Necesito Tu Amor** — Fidel Nadal · *Vibraciones Positivas*](https://www.last.fm/music/Fidel+Nadal/_/Necesito+Tu+Amor)  
-_2025-08-16 12:45_
+[**Las Flores** — Café Tacvba · *Re*](https://www.last.fm/music/Caf%C3%A9+Tacvba/_/Las+Flores)  
+_Reproduciendo ahora_
 <!--LASTFM:END-->
