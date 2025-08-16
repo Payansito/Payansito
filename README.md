@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Te Quiero** — Hombres G · *Las baladas (Los singles vol II)*](https://www.last.fm/music/Hombres+G/_/Te+Quiero)  
+[**Quiero Ver** — Café Tacvba · *SINO*](https://www.last.fm/music/Caf%C3%A9+Tacvba/_/Quiero+Ver)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
