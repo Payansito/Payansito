@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Y Mi Corazón Contento** — Zona Ganjah · *Sanazion*](https://www.last.fm/music/Zona+Ganjah/_/Y+Mi+Coraz%C3%B3n+Contento)  
-_2025-08-16 06:08_
+[**Mi amor** — Dread Mar I · *AMOR-ES*](https://www.last.fm/music/Dread+Mar+I/_/Mi+amor)  
+_Reproduciendo ahora_
 <!--LASTFM:END-->
