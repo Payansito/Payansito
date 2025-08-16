@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Triste Canción** — El Tri · *40 Años Vol. 2*](https://www.last.fm/music/El+Tri/_/Triste+Canci%C3%B3n)  
+[**Te Quiero** — Hombres G · *Las baladas (Los singles vol II)*](https://www.last.fm/music/Hombres+G/_/Te+Quiero)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
