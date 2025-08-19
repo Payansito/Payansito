@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Mariposa traicionera** — Maná · *Revolución de Amor*](https://www.last.fm/music/Man%C3%A1/_/Mariposa+traicionera)  
-_Reproduciendo ahora_
+[**Clavado en un bar** — Maná · *Sueños Líquidos*](https://www.last.fm/music/Man%C3%A1/_/Clavado+en+un+bar)  
+_2025-08-19 08:11_
 <!--LASTFM:END-->
