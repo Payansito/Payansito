@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Orula** — Mendivil · *Orula*](https://www.last.fm/music/Mendivil/_/Orula)  
-_2025-08-19 07:29_
+[**Mariposa traicionera** — Maná · *Revolución de Amor*](https://www.last.fm/music/Man%C3%A1/_/Mariposa+traicionera)  
+_Reproduciendo ahora_
 <!--LASTFM:END-->
