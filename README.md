@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Clavado en un bar** — Maná · *Sueños Líquidos*](https://www.last.fm/music/Man%C3%A1/_/Clavado+en+un+bar)  
-_2025-08-19 08:11_
+[**Oye mi amor** — Maná · *Você É Minha Religião: O Melhor Do Maná (Deluxe Version)*](https://www.last.fm/music/Man%C3%A1/_/Oye+mi+amor)  
+_Reproduciendo ahora_
 <!--LASTFM:END-->
