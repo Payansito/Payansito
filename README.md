@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Oye mi amor** — Maná · *Você É Minha Religião: O Melhor Do Maná (Deluxe Version)*](https://www.last.fm/music/Man%C3%A1/_/Oye+mi+amor)  
+[**Bendita Tu Luz** — Maná, Juan Luis Guerra · *Amar es Combatir (Limited Edition CD+DVD)*](https://www.last.fm/music/Man%C3%A1,+Juan+Luis+Guerra/_/Bendita+Tu+Luz)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
