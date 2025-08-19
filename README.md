@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Bendita Tu Luz** — Maná, Juan Luis Guerra · *Amar es Combatir (Limited Edition CD+DVD)*](https://www.last.fm/music/Man%C3%A1,+Juan+Luis+Guerra/_/Bendita+Tu+Luz)  
-_Reproduciendo ahora_
+[**Corazón espinado** — Maná · *Você É Minha Religião: O Melhor Do Maná (Deluxe Version)*](https://www.last.fm/music/Man%C3%A1/_/Coraz%C3%B3n+espinado)  
+_2025-08-19 09:27_
 <!--LASTFM:END-->
