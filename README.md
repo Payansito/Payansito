@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Orula** — Mendivil · *Orula*](https://www.last.fm/music/Mendivil/_/Orula)  
-_2025-08-20 02:04_
+[**Me Acostumbre (feat. Bad Bunny)** — Arcángel · *Me Acostumbre (feat. Bad Bunny)*](https://www.last.fm/music/Arc%C3%A1ngel/_/Me+Acostumbre+(feat.+Bad+Bunny))  
+_Reproduciendo ahora_
 <!--LASTFM:END-->
