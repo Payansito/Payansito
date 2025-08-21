@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**No Dejes Que...** — Caifanes · *El Silencio*](https://www.last.fm/music/Caifanes/_/No+Dejes+Que...)  
+[**Los Dioses Ocultos** — Caifanes · *El Diablito*](https://www.last.fm/music/Caifanes/_/Los+Dioses+Ocultos)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
