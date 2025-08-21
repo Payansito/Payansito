@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Los Malaventurados No Lloran** — Panda · *Amantes Sunt Amentes*](https://www.last.fm/music/Panda/_/Los+Malaventurados+No+Lloran)  
-_Reproduciendo ahora_
+[**Vendedora de Caricias** — Panteón Rococó · *Panteón Rococó*](https://www.last.fm/music/Pante%C3%B3n+Rococ%C3%B3/_/Vendedora+de+Caricias)  
+_2025-08-21 09:04_
 <!--LASTFM:END-->
