@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Chuy y Mauricio (En Vivo)** — Los Alegres Del Barranco · *Pisteando, Vol. 2 (En Vivo)*](https://www.last.fm/music/Los+Alegres+Del+Barranco/_/Chuy+y+Mauricio+(En+Vivo))  
+[**El Costal Lleno De Piedras** — Los Alegres Del Barranco · *Me Dan Celos*](https://www.last.fm/music/Los+Alegres+Del+Barranco/_/El+Costal+Lleno+De+Piedras)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
