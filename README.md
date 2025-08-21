@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Y Mi Corazón Contento** — Zona Ganjah · *Sanazion*](https://www.last.fm/music/Zona+Ganjah/_/Y+Mi+Coraz%C3%B3n+Contento)  
+[**Los Malaventurados No Lloran** — Panda · *Amantes Sunt Amentes*](https://www.last.fm/music/Panda/_/Los+Malaventurados+No+Lloran)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
