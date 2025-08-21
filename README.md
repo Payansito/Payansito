@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Mi Verdad (feat. Shakira)** — Maná, Shakira · *Mi Verdad (feat. Shakira)*](https://www.last.fm/music/Man%C3%A1,+Shakira/_/Mi+Verdad+(feat.+Shakira))  
-_2025-08-21 20:58_
+[**Chuy y Mauricio (En Vivo)** — Los Alegres Del Barranco · *Pisteando, Vol. 2 (En Vivo)*](https://www.last.fm/music/Los+Alegres+Del+Barranco/_/Chuy+y+Mauricio+(En+Vivo))  
+_Reproduciendo ahora_
 <!--LASTFM:END-->
