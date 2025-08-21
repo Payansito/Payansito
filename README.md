@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Orula** — Mendivil · *Orula*](https://www.last.fm/music/Mendivil/_/Orula)  
-_2025-08-20 11:47_
+[**La Ocasión** — DJ Luian, Mambo Kingz, De La Ghetto, Arcángel, Ozuna, Anuel AA · *La Ocasión*](https://www.last.fm/music/DJ+Luian,+Mambo+Kingz,+De+La+Ghetto,+Arc%C3%A1ngel,+Ozuna,+Anuel+AA/_/La+Ocasi%C3%B3n)  
+_2025-08-21 02:21_
 <!--LASTFM:END-->
