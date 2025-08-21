@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Vendedora de Caricias** — Panteón Rococó · *Panteón Rococó*](https://www.last.fm/music/Pante%C3%B3n+Rococ%C3%B3/_/Vendedora+de+Caricias)  
-_2025-08-21 09:04_
+[**Labios Compartidos** — Maná · *Amar es Combatir (Limited Edition CD+DVD)*](https://www.last.fm/music/Man%C3%A1/_/Labios+Compartidos)  
+_Reproduciendo ahora_
 <!--LASTFM:END-->
