@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**El Costal Lleno De Piedras** — Los Alegres Del Barranco · *Me Dan Celos*](https://www.last.fm/music/Los+Alegres+Del+Barranco/_/El+Costal+Lleno+De+Piedras)  
-_Reproduciendo ahora_
+[**El 24** — El Tigrillo Palma · *Los Corridos Favoritos Del Jefe*](https://www.last.fm/music/El+Tigrillo+Palma/_/El+24)  
+_2025-08-21 23:14_
 <!--LASTFM:END-->
