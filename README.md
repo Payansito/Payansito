@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Cortinas Guindas** — Hijos De Barron · *Sinaloense Hecho y Derecho*](https://www.last.fm/music/Hijos+De+Barron/_/Cortinas+Guindas)  
+[**Oye mi amor** — Maná · *Você É Minha Religião: O Melhor Do Maná (Deluxe Version)*](https://www.last.fm/music/Man%C3%A1/_/Oye+mi+amor)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
