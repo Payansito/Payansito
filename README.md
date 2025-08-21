@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Eres mi religión** — Maná · *Revolución de Amor*](https://www.last.fm/music/Man%C3%A1/_/Eres+mi+religi%C3%B3n)  
-_Reproduciendo ahora_
+[**Mi Verdad (feat. Shakira)** — Maná, Shakira · *Mi Verdad (feat. Shakira)*](https://www.last.fm/music/Man%C3%A1,+Shakira/_/Mi+Verdad+(feat.+Shakira))  
+_2025-08-21 20:58_
 <!--LASTFM:END-->
