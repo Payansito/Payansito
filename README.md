@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**El 24** — El Tigrillo Palma · *Los Corridos Favoritos Del Jefe*](https://www.last.fm/music/El+Tigrillo+Palma/_/El+24)  
-_2025-08-21 23:14_
+[**La Ocasión** — DJ Luian, Mambo Kingz, De La Ghetto, Arcángel, Ozuna, Anuel AA · *La Ocasión*](https://www.last.fm/music/DJ+Luian,+Mambo+Kingz,+De+La+Ghetto,+Arc%C3%A1ngel,+Ozuna,+Anuel+AA/_/La+Ocasi%C3%B3n)  
+_Reproduciendo ahora_
 <!--LASTFM:END-->
