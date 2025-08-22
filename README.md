@@ -37,5 +37,5 @@ Español (nativo) · Inglés (B2)
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
 [**Afuera** — Caifanes · *El Nervio Del Volcan*](https://www.last.fm/music/Caifanes/_/Afuera)  
-_Reproduciendo ahora_
+_2025-08-22 11:24_
 <!--LASTFM:END-->
