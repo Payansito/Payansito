@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**En El Muelle De San Blas** — Maná · *Sueños Líquidos*](https://www.last.fm/music/Man%C3%A1/_/En+El+Muelle+De+San+Blas)  
+[**Labios Compartidos** — Maná · *Amar es Combatir (Limited Edition CD+DVD)*](https://www.last.fm/music/Man%C3%A1/_/Labios+Compartidos)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
