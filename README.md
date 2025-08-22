@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Labios Compartidos** — Maná · *Amar es Combatir (Limited Edition CD+DVD)*](https://www.last.fm/music/Man%C3%A1/_/Labios+Compartidos)  
-_2025-08-22 10:03_
+[**Afuera** — Caifanes · *El Nervio Del Volcan*](https://www.last.fm/music/Caifanes/_/Afuera)  
+_Reproduciendo ahora_
 <!--LASTFM:END-->
