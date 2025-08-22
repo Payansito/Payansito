@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Vasos Vacíos (Remasterizado 2008)** — Los Fabulosos Cadillacs · *Vasos Vacíos*](https://www.last.fm/music/Los+Fabulosos+Cadillacs/_/Vasos+Vac%C3%ADos+(Remasterizado+2008))  
-_2025-08-22 06:51_
+[**En El Muelle De San Blas** — Maná · *Sueños Líquidos*](https://www.last.fm/music/Man%C3%A1/_/En+El+Muelle+De+San+Blas)  
+_Reproduciendo ahora_
 <!--LASTFM:END-->
