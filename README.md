@@ -37,5 +37,5 @@ Español (nativo) · Inglés (B2)
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
 [**Vivo** — Fobia · *Amor Chiquito*](https://www.last.fm/music/Fobia/_/Vivo)  
-_Reproduciendo ahora_
+_2025-08-23 03:29_
 <!--LASTFM:END-->
