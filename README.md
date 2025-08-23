@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**La Flaca** — Jarabe de Palo · *Grandes Exitos?*](https://www.last.fm/music/Jarabe+de+Palo/_/La+Flaca)  
+[**Vivo** — Fobia · *Amor Chiquito*](https://www.last.fm/music/Fobia/_/Vivo)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
