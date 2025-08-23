@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**El Ataque De Las Chicas Cocodrilo** — Hombres G · *Los Singles 1985-2005*](https://www.last.fm/music/Hombres+G/_/El+Ataque+De+Las+Chicas+Cocodrilo)  
-_2025-08-23 01:00_
+[**La Flaca** — Jarabe de Palo · *Grandes Exitos?*](https://www.last.fm/music/Jarabe+de+Palo/_/La+Flaca)  
+_Reproduciendo ahora_
 <!--LASTFM:END-->
