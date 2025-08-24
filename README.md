@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Te lloré un río** — Maná · *¿Dónde jugarán los niños?*](https://www.last.fm/music/Man%C3%A1/_/Te+llor%C3%A9+un+r%C3%ADo)  
+[**Mi Verdad (feat. Shakira)** — Maná, Shakira · *Mi Verdad (feat. Shakira)*](https://www.last.fm/music/Man%C3%A1,+Shakira/_/Mi+Verdad+(feat.+Shakira))  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
