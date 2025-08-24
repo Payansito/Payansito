@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Rayando el sol** — Maná · *Falta Amor*](https://www.last.fm/music/Man%C3%A1/_/Rayando+el+sol)  
-_2025-08-24 00:40_
+[**Oye mi amor** — Maná · *Você É Minha Religião: O Melhor Do Maná (Deluxe Version)*](https://www.last.fm/music/Man%C3%A1/_/Oye+mi+amor)  
+_Reproduciendo ahora_
 <!--LASTFM:END-->
