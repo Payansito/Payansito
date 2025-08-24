@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Vivir Sin Aire** — Maná, Carin Leon · *Noches De Cantina*](https://www.last.fm/music/Man%C3%A1,+Carin+Leon/_/Vivir+Sin+Aire)  
-_2025-08-24 05:44_
+[**En El Muelle De San Blas** — Maná · *Sueños Líquidos*](https://www.last.fm/music/Man%C3%A1/_/En+El+Muelle+De+San+Blas)  
+_Reproduciendo ahora_
 <!--LASTFM:END-->
