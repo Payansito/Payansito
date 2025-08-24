@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Te lloré un río** — Maná · *¿Dónde jugarán los niños?*](https://www.last.fm/music/Man%C3%A1/_/Te+llor%C3%A9+un+r%C3%ADo)  
+[**Corazón espinado** — Maná · *Você É Minha Religião: O Melhor Do Maná (Deluxe Version)*](https://www.last.fm/music/Man%C3%A1/_/Coraz%C3%B3n+espinado)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
