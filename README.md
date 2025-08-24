@@ -37,5 +37,5 @@ Español (nativo) · Inglés (B2)
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
 [**Corazón espinado** — Maná · *Você É Minha Religião: O Melhor Do Maná (Deluxe Version)*](https://www.last.fm/music/Man%C3%A1/_/Coraz%C3%B3n+espinado)  
-_Reproduciendo ahora_
+_2025-08-24 07:28_
 <!--LASTFM:END-->
