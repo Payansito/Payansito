@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Poesia de la Oscuridad** — C.R.O · *Poesia de la Oscuridad*](https://www.last.fm/music/C.R.O/_/Poesia+de+la+Oscuridad)  
-_Reproduciendo ahora_
+[**Dispuestos a morir** — Natos y Waor, Homer el Mero Mero, C.R.O · *Dispuestos a morir*](https://www.last.fm/music/Natos+y+Waor,+Homer+el+Mero+Mero,+C.R.O/_/Dispuestos+a+morir)  
+_2025-08-24 10:52_
 <!--LASTFM:END-->
