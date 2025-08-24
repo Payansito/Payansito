@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Vivo** — Fobia · *Amor Chiquito*](https://www.last.fm/music/Fobia/_/Vivo)  
-_2025-08-23 03:29_
+[**Rayando el sol** — Maná · *Falta Amor*](https://www.last.fm/music/Man%C3%A1/_/Rayando+el+sol)  
+_2025-08-24 00:40_
 <!--LASTFM:END-->
