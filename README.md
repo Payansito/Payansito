@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Mi Verdad (feat. Shakira)** — Maná, Shakira · *Mi Verdad (feat. Shakira)*](https://www.last.fm/music/Man%C3%A1,+Shakira/_/Mi+Verdad+(feat.+Shakira))  
+[**Vivir Sin Aire** — Maná, Carin Leon · *Noches De Cantina*](https://www.last.fm/music/Man%C3%A1,+Carin+Leon/_/Vivir+Sin+Aire)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
