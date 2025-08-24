@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Vasos Vacíos (Remasterizado 2008)** — Los Fabulosos Cadillacs · *Vasos Vacíos*](https://www.last.fm/music/Los+Fabulosos+Cadillacs/_/Vasos+Vac%C3%ADos+(Remasterizado+2008))  
+[**Afuera** — Caifanes · *El Nervio Del Volcan*](https://www.last.fm/music/Caifanes/_/Afuera)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
