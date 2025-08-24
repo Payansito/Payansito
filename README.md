@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Oye mi amor** — Maná · *Você É Minha Religião: O Melhor Do Maná (Deluxe Version)*](https://www.last.fm/music/Man%C3%A1/_/Oye+mi+amor)  
+[**Te lloré un río** — Maná · *¿Dónde jugarán los niños?*](https://www.last.fm/music/Man%C3%A1/_/Te+llor%C3%A9+un+r%C3%ADo)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
