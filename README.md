@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Labios Compartidos** — Maná · *Amar es Combatir (Limited Edition CD+DVD)*](https://www.last.fm/music/Man%C3%A1/_/Labios+Compartidos)  
+[**Te lloré un río** — Maná · *¿Dónde jugarán los niños?*](https://www.last.fm/music/Man%C3%A1/_/Te+llor%C3%A9+un+r%C3%ADo)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
