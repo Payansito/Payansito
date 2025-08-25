@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**La Carencia** — Panteón Rococó · *Compañeros Musicales*](https://www.last.fm/music/Pante%C3%B3n+Rococ%C3%B3/_/La+Carencia)  
-_Reproduciendo ahora_
+[**Love** — Zoé · *Rocanlover*](https://www.last.fm/music/Zo%C3%A9/_/Love)  
+_2025-08-25 03:26_
 <!--LASTFM:END-->
