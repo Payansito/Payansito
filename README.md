@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Yo ya gané** — C.R.O, BHAVI · *Yo ya gané*](https://www.last.fm/music/C.R.O,+BHAVI/_/Yo+ya+gan%C3%A9)  
-_2025-08-24 23:58_
+[**La Carencia** — Panteón Rococó · *Compañeros Musicales*](https://www.last.fm/music/Pante%C3%B3n+Rococ%C3%B3/_/La+Carencia)  
+_Reproduciendo ahora_
 <!--LASTFM:END-->
