@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**No Dejes Que...** — Caifanes · *El Silencio*](https://www.last.fm/music/Caifanes/_/No+Dejes+Que...)  
+[**Orula** — Mendivil · *Orula*](https://www.last.fm/music/Mendivil/_/Orula)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
