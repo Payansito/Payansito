@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Orula** — Mendivil · *Orula*](https://www.last.fm/music/Mendivil/_/Orula)  
+[**PLAK** — Victor Mendivil, $HUPE · *Tutankamon*](https://www.last.fm/music/Victor+Mendivil,+$HUPE/_/PLAK)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
