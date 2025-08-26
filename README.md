@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Love** — Zoé · *Rocanlover*](https://www.last.fm/music/Zo%C3%A9/_/Love)  
-_2025-08-25 03:26_
+[**Diles** — Bad Bunny, Arcángel, Ñengo Flow, DJ Luian, Mambo Kingz, Ozuna, Farruko · *Diles*](https://www.last.fm/music/Bad+Bunny,+Arc%C3%A1ngel,+%C3%91engo+Flow,+DJ+Luian,+Mambo+Kingz,+Ozuna,+Farruko/_/Diles)  
+_Reproduciendo ahora_
 <!--LASTFM:END-->
