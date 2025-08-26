@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Diles** — Bad Bunny, Arcángel, Ñengo Flow, DJ Luian, Mambo Kingz, Ozuna, Farruko · *Diles*](https://www.last.fm/music/Bad+Bunny,+Arc%C3%A1ngel,+%C3%91engo+Flow,+DJ+Luian,+Mambo+Kingz,+Ozuna,+Farruko/_/Diles)  
-_2025-08-26 02:23_
+[**Vasos Vacíos (Remasterizado 2008)** — Los Fabulosos Cadillacs · *Vasos Vacíos*](https://www.last.fm/music/Los+Fabulosos+Cadillacs/_/Vasos+Vac%C3%ADos+(Remasterizado+2008))  
+_Reproduciendo ahora_
 <!--LASTFM:END-->
