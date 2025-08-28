@@ -37,5 +37,5 @@ Español (nativo) · Inglés (B2)
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
 [**PLAK** — Victor Mendivil, $HUPE · *Tutankamon*](https://www.last.fm/music/Victor+Mendivil,+$HUPE/_/PLAK)  
-_Reproduciendo ahora_
+_2025-08-28 21:28_
 <!--LASTFM:END-->
