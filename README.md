@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**PLAK** — Victor Mendivil, $HUPE · *Tutankamon*](https://www.last.fm/music/Victor+Mendivil,+$HUPE/_/PLAK)  
-_2025-08-28 21:28_
+[**Ahora Corren** — Bardero$, Lil Troca, Franky Style, Grey Music Family, Chulu · *Inmortales*](https://www.last.fm/music/Bardero$,+Lil+Troca,+Franky+Style,+Grey+Music+Family,+Chulu/_/Ahora+Corren)  
+_Reproduciendo ahora_
 <!--LASTFM:END-->
