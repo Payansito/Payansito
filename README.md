@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Ahora Corren** — Bardero$, Lil Troca, Franky Style, Grey Music Family, Chulu · *Inmortales*](https://www.last.fm/music/Bardero$,+Lil+Troca,+Franky+Style,+Grey+Music+Family,+Chulu/_/Ahora+Corren)  
-_Reproduciendo ahora_
+[**Unidad 9** — Bardero$ · *Unidad 9*](https://www.last.fm/music/Bardero$/_/Unidad+9)  
+_2025-08-29 06:36_
 <!--LASTFM:END-->
