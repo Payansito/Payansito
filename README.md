@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Unidad 9** — Bardero$ · *Unidad 9*](https://www.last.fm/music/Bardero$/_/Unidad+9)  
-_2025-08-29 06:36_
+[**B.a.R.D.O** — Bardero$, Sammu Beat · *B.a.R.D.O*](https://www.last.fm/music/Bardero$,+Sammu+Beat/_/B.a.R.D.O)  
+_Reproduciendo ahora_
 <!--LASTFM:END-->
