@@ -37,5 +37,5 @@ Español (nativo) · Inglés (B2)
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
 [**B.a.R.D.O** — Bardero$, Sammu Beat · *B.a.R.D.O*](https://www.last.fm/music/Bardero$,+Sammu+Beat/_/B.a.R.D.O)  
-_Reproduciendo ahora_
+_2025-08-30 05:40_
 <!--LASTFM:END-->
