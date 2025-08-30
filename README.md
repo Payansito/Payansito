@@ -37,5 +37,5 @@ Español (nativo) · Inglés (B2)
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
 [**Tu No Vive Asi (feat. Mambo Kingz & DJ Luian)** — Bad Bunny, Arcángel · *Tu No Vive Asi (feat. Mambo Kingz & DJ Luian)*](https://www.last.fm/music/Bad+Bunny,+Arc%C3%A1ngel/_/Tu+No+Vive+Asi+(feat.+Mambo+Kingz+&+DJ+Luian))  
-_2025-08-30 01:50_
+_Reproduciendo ahora_
 <!--LASTFM:END-->
