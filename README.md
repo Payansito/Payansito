@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Tu No Vive Asi (feat. Mambo Kingz & DJ Luian)** — Bad Bunny, Arcángel · *Tu No Vive Asi (feat. Mambo Kingz & DJ Luian)*](https://www.last.fm/music/Bad+Bunny,+Arc%C3%A1ngel/_/Tu+No+Vive+Asi+(feat.+Mambo+Kingz+&+DJ+Luian))  
+[**B.a.R.D.O** — Bardero$, Sammu Beat · *B.a.R.D.O*](https://www.last.fm/music/Bardero$,+Sammu+Beat/_/B.a.R.D.O)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
