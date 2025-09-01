@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Diles** — Bad Bunny, Arcángel, Ñengo Flow, DJ Luian, Mambo Kingz, Ozuna, Farruko · *Diles*](https://www.last.fm/music/Bad+Bunny,+Arc%C3%A1ngel,+%C3%91engo+Flow,+DJ+Luian,+Mambo+Kingz,+Ozuna,+Farruko/_/Diles)  
-_Reproduciendo ahora_
+[**Izakaya** — YNG H · *Izakaya*](https://www.last.fm/music/YNG+H/_/Izakaya)  
+_2025-09-01 01:19_
 <!--LASTFM:END-->
