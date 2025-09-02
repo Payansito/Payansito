@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Izakaya** — YNG H · *Izakaya*](https://www.last.fm/music/YNG+H/_/Izakaya)  
-_2025-09-01 01:19_
+[**gervonta** — Peso Pluma · *gervonta*](https://www.last.fm/music/Peso+Pluma/_/gervonta)  
+_2025-09-02 02:00_
 <!--LASTFM:END-->
