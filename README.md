@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Mujer de Piedra** — Gerardo Ortíz · *Archivos de Mi Vida*](https://www.last.fm/music/Gerardo+Ort%C3%ADz/_/Mujer+de+Piedra)  
-_Reproduciendo ahora_
+[**Bob Patiño** — Jimmy Guzman, Ismael CM · *Bob Patiño*](https://www.last.fm/music/Jimmy+Guzman,+Ismael+CM/_/Bob+Pati%C3%B1o)  
+_2025-09-10 03:42_
 <!--LASTFM:END-->
