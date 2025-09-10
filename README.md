@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**gervonta** — Peso Pluma · *gervonta*](https://www.last.fm/music/Peso+Pluma/_/gervonta)  
-_2025-09-09 07:30_
+[**Notorious B.I.G. (feat. Lil' Kim & Puff Daddy) [2007 Remaster]** — The Notorious B.I.G., Lil' Kim, Diddy · *Greatest Hits*](https://www.last.fm/music/The+Notorious+B.I.G.,+Lil%27+Kim,+Diddy/_/Notorious+B.I.G.+(feat.+Lil%27+Kim+&+Puff+Daddy)+%5B2007+Remaster%5D)  
+_Reproduciendo ahora_
 <!--LASTFM:END-->
