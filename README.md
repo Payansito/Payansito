@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Notorious B.I.G. (feat. Lil' Kim & Puff Daddy) [2007 Remaster]** — The Notorious B.I.G., Lil' Kim, Diddy · *Greatest Hits*](https://www.last.fm/music/The+Notorious+B.I.G.,+Lil%27+Kim,+Diddy/_/Notorious+B.I.G.+(feat.+Lil%27+Kim+&+Puff+Daddy)+%5B2007+Remaster%5D)  
+[**Mujer de Piedra** — Gerardo Ortíz · *Archivos de Mi Vida*](https://www.last.fm/music/Gerardo+Ort%C3%ADz/_/Mujer+de+Piedra)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
