@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Bob Patiño** — Jimmy Guzman, Ismael CM · *Bob Patiño*](https://www.last.fm/music/Jimmy+Guzman,+Ismael+CM/_/Bob+Pati%C3%B1o)  
-_2025-09-10 03:42_
+[**Yo ya gané** — C.R.O, BHAVI · *Yo ya gané*](https://www.last.fm/music/C.R.O,+BHAVI/_/Yo+ya+gan%C3%A9)  
+_Reproduciendo ahora_
 <!--LASTFM:END-->
