@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Dos Hojas Sin Rumbo** — Leonel el Ranchero, Almikar El Cazador de Sinaloa · *Catarino y los Rurales*](https://www.last.fm/music/Leonel+el+Ranchero,+Almikar+El+Cazador+de+Sinaloa/_/Dos+Hojas+Sin+Rumbo)  
-_2025-09-14 02:02_
+[**Orula** — RZR · *Orula*](https://www.last.fm/music/RZR/_/Orula)  
+_Reproduciendo ahora_
 <!--LASTFM:END-->
