@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Yo ya gané** — C.R.O, BHAVI · *Yo ya gané*](https://www.last.fm/music/C.R.O,+BHAVI/_/Yo+ya+gan%C3%A9)  
-_2025-09-12 22:18_
+[**Dos Hojas Sin Rumbo** — Leonel el Ranchero, Almikar El Cazador de Sinaloa · *Catarino y los Rurales*](https://www.last.fm/music/Leonel+el+Ranchero,+Almikar+El+Cazador+de+Sinaloa/_/Dos+Hojas+Sin+Rumbo)  
+_2025-09-14 02:02_
 <!--LASTFM:END-->
