@@ -37,5 +37,5 @@ Español (nativo) · Inglés (B2)
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
 [**Orula** — RZR · *Orula*](https://www.last.fm/music/RZR/_/Orula)  
-_Reproduciendo ahora_
+_2025-09-14 22:28_
 <!--LASTFM:END-->
