@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**El Niño Sicario** — Calibre 50 · *Lo Mejor De...*](https://www.last.fm/music/Calibre+50/_/El+Ni%C3%B1o+Sicario)  
-_Reproduciendo ahora_
+[**La Hummer Y El Camaro** — Voz De Mando, Escolta De Guerra, Jorge Santa Cruz · *Lo Mejor De...*](https://www.last.fm/music/Voz+De+Mando,+Escolta+De+Guerra,+Jorge+Santa+Cruz/_/La+Hummer+Y+El+Camaro)  
+_2025-09-15 08:11_
 <!--LASTFM:END-->
