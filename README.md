@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Hello Kitty** — Edgardo Nuñez, Enigma Norteño · *Hello Kitty*](https://www.last.fm/music/Edgardo+Nu%C3%B1ez,+Enigma+Norte%C3%B1o/_/Hello+Kitty)  
+[**El Niño Sicario** — Calibre 50 · *Lo Mejor De...*](https://www.last.fm/music/Calibre+50/_/El+Ni%C3%B1o+Sicario)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
