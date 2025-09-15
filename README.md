@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**El de la Defender Blanca** — Los Zares de Culiacan · *El de la Defender Blanca*](https://www.last.fm/music/Los+Zares+de+Culiacan/_/El+de+la+Defender+Blanca)  
+[**Hello Kitty** — Edgardo Nuñez, Enigma Norteño · *Hello Kitty*](https://www.last.fm/music/Edgardo+Nu%C3%B1ez,+Enigma+Norte%C3%B1o/_/Hello+Kitty)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
