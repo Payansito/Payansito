@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Afuera** — Caifanes · *El Nervio Del Volcan*](https://www.last.fm/music/Caifanes/_/Afuera)  
+[**El de la Defender Blanca** — Los Zares de Culiacan · *El de la Defender Blanca*](https://www.last.fm/music/Los+Zares+de+Culiacan/_/El+de+la+Defender+Blanca)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
