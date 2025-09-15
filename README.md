@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Orula** — RZR · *Orula*](https://www.last.fm/music/RZR/_/Orula)  
-_2025-09-14 22:28_
+[**B.a.R.D.O** — Bardero$, Sammu Beat · *B.a.R.D.O*](https://www.last.fm/music/Bardero$,+Sammu+Beat/_/B.a.R.D.O)  
+_Reproduciendo ahora_
 <!--LASTFM:END-->
