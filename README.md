@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**hARAkiRi** — Duki, C.R.O · *hARAkiRi*](https://www.last.fm/music/Duki,+C.R.O/_/hARAkiRi)  
+[**Free Nata** — Natanael Cano · *NataKong*](https://www.last.fm/music/Natanael+Cano/_/Free+Nata)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
