@@ -37,5 +37,5 @@ Español (nativo) · Inglés (B2)
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
 [**Yo ya gané** — C.R.O, BHAVI · *Yo ya gané*](https://www.last.fm/music/C.R.O,+BHAVI/_/Yo+ya+gan%C3%A9)  
-_Reproduciendo ahora_
+_2025-09-16 03:30_
 <!--LASTFM:END-->
