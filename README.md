@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Free Nata** — Natanael Cano · *NataKong*](https://www.last.fm/music/Natanael+Cano/_/Free+Nata)  
+[**Yo ya gané** — C.R.O, BHAVI · *Yo ya gané*](https://www.last.fm/music/C.R.O,+BHAVI/_/Yo+ya+gan%C3%A9)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
