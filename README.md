@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**La Hummer Y El Camaro** — Voz De Mando, Escolta De Guerra, Jorge Santa Cruz · *Lo Mejor De...*](https://www.last.fm/music/Voz+De+Mando,+Escolta+De+Guerra,+Jorge+Santa+Cruz/_/La+Hummer+Y+El+Camaro)  
-_2025-09-15 08:11_
+[**hARAkiRi** — Duki, C.R.O · *hARAkiRi*](https://www.last.fm/music/Duki,+C.R.O/_/hARAkiRi)  
+_Reproduciendo ahora_
 <!--LASTFM:END-->
