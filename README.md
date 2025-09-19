@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Afuera** — Caifanes · *El Nervio Del Volcan*](https://www.last.fm/music/Caifanes/_/Afuera)  
+[**La Ingrata** — Café Tacvba · *Re*](https://www.last.fm/music/Caf%C3%A9+Tacvba/_/La+Ingrata)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
