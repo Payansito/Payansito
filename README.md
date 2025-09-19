@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Te Quiero** — Hombres G · *Las baladas (Los singles vol II)*](https://www.last.fm/music/Hombres+G/_/Te+Quiero)  
+[**Labios Rotos** — Zoé · *MTV Unplugged Música De Fondo (Reissue/Live)*](https://www.last.fm/music/Zo%C3%A9/_/Labios+Rotos)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
