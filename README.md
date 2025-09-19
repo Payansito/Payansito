@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Yo ya gané** — C.R.O, BHAVI · *Yo ya gané*](https://www.last.fm/music/C.R.O,+BHAVI/_/Yo+ya+gan%C3%A9)  
+[**Afuera** — Caifanes · *El Nervio Del Volcan*](https://www.last.fm/music/Caifanes/_/Afuera)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
