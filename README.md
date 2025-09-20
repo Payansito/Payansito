@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Labios Rotos** — Zoé · *MTV Unplugged Música De Fondo (Reissue/Live)*](https://www.last.fm/music/Zo%C3%A9/_/Labios+Rotos)  
+[**3 AM** — Jimmy Guzman, Omar Camacho · *3 AM*](https://www.last.fm/music/Jimmy+Guzman,+Omar+Camacho/_/3+AM)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
