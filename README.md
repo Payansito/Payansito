@@ -37,5 +37,5 @@ Español (nativo) · Inglés (B2)
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
 [**gervonta** — Peso Pluma · *gervonta*](https://www.last.fm/music/Peso+Pluma/_/gervonta)  
-_Reproduciendo ahora_
+_2025-09-21 07:31_
 <!--LASTFM:END-->
