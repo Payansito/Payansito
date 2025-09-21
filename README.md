@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**3 AM** — Jimmy Guzman, Omar Camacho · *3 AM*](https://www.last.fm/music/Jimmy+Guzman,+Omar+Camacho/_/3+AM)  
+[**gervonta** — Peso Pluma · *gervonta*](https://www.last.fm/music/Peso+Pluma/_/gervonta)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
