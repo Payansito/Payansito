@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**gervonta** — Peso Pluma · *gervonta*](https://www.last.fm/music/Peso+Pluma/_/gervonta)  
-_2025-09-21 07:31_
+[**Pelotero A La Bola** — 8Uno, Airam Paez · *Pelotero A La Bola*](https://www.last.fm/music/8Uno,+Airam+Paez/_/Pelotero+A+La+Bola)  
+_Reproduciendo ahora_
 <!--LASTFM:END-->
