@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Pelotero A La Bola** — 8Uno, Airam Paez · *Pelotero A La Bola*](https://www.last.fm/music/8Uno,+Airam+Paez/_/Pelotero+A+La+Bola)  
-_2025-09-22 06:50_
+[**3 AM** — Jimmy Guzman, Omar Camacho · *3 AM*](https://www.last.fm/music/Jimmy+Guzman,+Omar+Camacho/_/3+AM)  
+_Reproduciendo ahora_
 <!--LASTFM:END-->
