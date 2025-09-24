@@ -37,5 +37,5 @@ Español (nativo) · Inglés (B2)
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
 [**3 AM** — Jimmy Guzman, Omar Camacho · *3 AM*](https://www.last.fm/music/Jimmy+Guzman,+Omar+Camacho/_/3+AM)  
-_Reproduciendo ahora_
+_2025-09-24 03:10_
 <!--LASTFM:END-->
