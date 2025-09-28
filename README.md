@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Izakaya** — YNG H · *Izakaya*](https://www.last.fm/music/YNG+H/_/Izakaya)  
-_2025-09-28 01:01_
+[**3 AM** — Jimmy Guzman, Omar Camacho · *3 AM*](https://www.last.fm/music/Jimmy+Guzman,+Omar+Camacho/_/3+AM)  
+_2025-09-28 02:01_
 <!--LASTFM:END-->
