@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**La Barda** — Grupo 360 · *La Barda*](https://www.last.fm/music/Grupo+360/_/La+Barda)  
-_2025-09-27 22:06_
+[**Izakaya** — YNG H · *Izakaya*](https://www.last.fm/music/YNG+H/_/Izakaya)  
+_2025-09-28 01:01_
 <!--LASTFM:END-->
