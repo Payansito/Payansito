@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**C.R.O: Bzrp Music Sessions, Vol. 29** — Bizarrap, C.R.O · *C.R.O: Bzrp Music Sessions, Vol. 29*](https://www.last.fm/music/Bizarrap,+C.R.O/_/C.R.O:+Bzrp+Music+Sessions,+Vol.+29)  
-_2025-09-29 01:06_
+[**P.V.** — Victor Mendivil, Fenix Flexin · *Tutankamon*](https://www.last.fm/music/Victor+Mendivil,+Fenix+Flexin/_/P.V.)  
+_Reproduciendo ahora_
 <!--LASTFM:END-->
