@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**3 AM** — Jimmy Guzman, Omar Camacho · *3 AM*](https://www.last.fm/music/Jimmy+Guzman,+Omar+Camacho/_/3+AM)  
-_2025-09-28 02:01_
+[**C.R.O: Bzrp Music Sessions, Vol. 29** — Bizarrap, C.R.O · *C.R.O: Bzrp Music Sessions, Vol. 29*](https://www.last.fm/music/Bizarrap,+C.R.O/_/C.R.O:+Bzrp+Music+Sessions,+Vol.+29)  
+_2025-09-29 01:06_
 <!--LASTFM:END-->
