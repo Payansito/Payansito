@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Cholo** — Victor Mendivil · *Tutankamon*](https://www.last.fm/music/Victor+Mendivil/_/Cholo)  
-_2025-09-29 04:30_
+[**Dispuestos a morir** — Natos y Waor, Homer el Mero Mero, C.R.O · *Dispuestos a morir*](https://www.last.fm/music/Natos+y+Waor,+Homer+el+Mero+Mero,+C.R.O/_/Dispuestos+a+morir)  
+_Reproduciendo ahora_
 <!--LASTFM:END-->
