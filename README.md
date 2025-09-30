@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Dispuestos a morir** — Natos y Waor, Homer el Mero Mero, C.R.O · *Dispuestos a morir*](https://www.last.fm/music/Natos+y+Waor,+Homer+el+Mero+Mero,+C.R.O/_/Dispuestos+a+morir)  
+[**Poco a Poco** — Ovi, C.R.O, Lit Killah, Alemán · *Poco a Poco*](https://www.last.fm/music/Ovi,+C.R.O,+Lit+Killah,+Alem%C3%A1n/_/Poco+a+Poco)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
