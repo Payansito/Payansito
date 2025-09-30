@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**24 Horas** — Franky Style, C.R.O · *V Anillos*](https://www.last.fm/music/Franky+Style,+C.R.O/_/24+Horas)  
+[**V Anillos** — Franky Style, C.R.O · *V Anillos*](https://www.last.fm/music/Franky+Style,+C.R.O/_/V+Anillos)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
