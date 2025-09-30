@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Poco a Poco** — Ovi, C.R.O, Lit Killah, Alemán · *Poco a Poco*](https://www.last.fm/music/Ovi,+C.R.O,+Lit+Killah,+Alem%C3%A1n/_/Poco+a+Poco)  
+[**24 Horas** — Franky Style, C.R.O · *V Anillos*](https://www.last.fm/music/Franky+Style,+C.R.O/_/24+Horas)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
