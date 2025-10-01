@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Splash** — Franky Style, C.R.O · *V Anillos*](https://www.last.fm/music/Franky+Style,+C.R.O/_/Splash)  
-_2025-09-30 05:56_
+[**Cairo** — Victor Mendivil · *Tutankamon*](https://www.last.fm/music/Victor+Mendivil/_/Cairo)  
+_Reproduciendo ahora_
 <!--LASTFM:END-->
