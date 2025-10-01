@@ -37,5 +37,5 @@ Español (nativo) · Inglés (B2)
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
 [**Cairo** — Victor Mendivil · *Tutankamon*](https://www.last.fm/music/Victor+Mendivil/_/Cairo)  
-_Reproduciendo ahora_
+_2025-10-01 01:43_
 <!--LASTFM:END-->
