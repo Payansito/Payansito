@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Cairo** — Victor Mendivil · *Tutankamon*](https://www.last.fm/music/Victor+Mendivil/_/Cairo)  
-_2025-10-01 01:43_
+[**F.E.S - Víctor Mendivil** — La Fresada Music · *F.E.S - Víctor Mendivil*](https://www.last.fm/music/La+Fresada+Music/_/F.E.S+-+V%C3%ADctor+Mendivil)  
+_Reproduciendo ahora_
 <!--LASTFM:END-->
