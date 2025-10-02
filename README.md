@@ -37,5 +37,5 @@ Español (nativo) · Inglés (B2)
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
 [**F.E.S - Víctor Mendivil** — La Fresada Music · *F.E.S - Víctor Mendivil*](https://www.last.fm/music/La+Fresada+Music/_/F.E.S+-+V%C3%ADctor+Mendivil)  
-_Reproduciendo ahora_
+_2025-10-02 02:38_
 <!--LASTFM:END-->
