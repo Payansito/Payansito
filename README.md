@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Aquilesorganigrama** — Grupo 360 · *Aquilesorganigrama*](https://www.last.fm/music/Grupo+360/_/Aquilesorganigrama)  
-_2025-10-03 02:47_
+[**Orula** — Victor Mendivil · *Orula*](https://www.last.fm/music/Victor+Mendivil/_/Orula)  
+_Reproduciendo ahora_
 <!--LASTFM:END-->
