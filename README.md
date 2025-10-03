@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**El Piyi** — Grupo 360 · *El Piyi*](https://www.last.fm/music/Grupo+360/_/El+Piyi)  
-_Reproduciendo ahora_
+[**Aquilesorganigrama** — Grupo 360 · *Aquilesorganigrama*](https://www.last.fm/music/Grupo+360/_/Aquilesorganigrama)  
+_2025-10-03 02:47_
 <!--LASTFM:END-->
