@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**F.E.S - Víctor Mendivil** — La Fresada Music · *F.E.S - Víctor Mendivil*](https://www.last.fm/music/La+Fresada+Music/_/F.E.S+-+V%C3%ADctor+Mendivil)  
-_2025-10-02 02:38_
+[**El Piyi** — Grupo 360 · *El Piyi*](https://www.last.fm/music/Grupo+360/_/El+Piyi)  
+_Reproduciendo ahora_
 <!--LASTFM:END-->
