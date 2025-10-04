@@ -37,5 +37,5 @@ Español (nativo) · Inglés (B2)
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
 [**Orula** — Victor Mendivil · *Orula*](https://www.last.fm/music/Victor+Mendivil/_/Orula)  
-_Reproduciendo ahora_
+_2025-10-04 08:43_
 <!--LASTFM:END-->
