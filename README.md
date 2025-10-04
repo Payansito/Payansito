@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Espejito Espejito** — Willito, Victor Rivera Y Su Nuevo Estilo · *Espejito Espejito*](https://www.last.fm/music/Willito,+Victor+Rivera+Y+Su+Nuevo+Estilo/_/Espejito+Espejito)  
-_2025-10-04 02:00_
+[**Orula** — Victor Mendivil · *Orula*](https://www.last.fm/music/Victor+Mendivil/_/Orula)  
+_Reproduciendo ahora_
 <!--LASTFM:END-->
