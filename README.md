@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Payday (Puro Rico o Muerto)** — VICTOR MENDIVIL RAMIREZ · *Payday (Puro Rico o Muerto)*](https://www.last.fm/music/VICTOR+MENDIVIL+RAMIREZ/_/Payday+(Puro+Rico+o+Muerto))  
-_2025-10-04 00:42_
+[**Espejito Espejito** — Willito, Victor Rivera Y Su Nuevo Estilo · *Espejito Espejito*](https://www.last.fm/music/Willito,+Victor+Rivera+Y+Su+Nuevo+Estilo/_/Espejito+Espejito)  
+_2025-10-04 02:00_
 <!--LASTFM:END-->
