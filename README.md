@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Orula** — Victor Mendivil · *Orula*](https://www.last.fm/music/Victor+Mendivil/_/Orula)  
-_2025-10-03 23:42_
+[**Payday (Puro Rico o Muerto)** — VICTOR MENDIVIL RAMIREZ · *Payday (Puro Rico o Muerto)*](https://www.last.fm/music/VICTOR+MENDIVIL+RAMIREZ/_/Payday+(Puro+Rico+o+Muerto))  
+_2025-10-04 00:42_
 <!--LASTFM:END-->
