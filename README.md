@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**El Wero Scarface V24** — EI Comando Exclusivo · *Maldito y Bendito*](https://www.last.fm/music/EI+Comando+Exclusivo/_/El+Wero+Scarface+V24)  
+[**Cairo** — Victor Mendivil · *Tutankamon*](https://www.last.fm/music/Victor+Mendivil/_/Cairo)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
