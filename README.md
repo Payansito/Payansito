@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Capos** — Victor Mendivil, Orlando Verdugo · *Tutankamon*](https://www.last.fm/music/Victor+Mendivil,+Orlando+Verdugo/_/Capos)  
-_2025-10-10 08:06_
+[**P.V.** — Victor Mendivil, Fenix Flexin · *Tutankamon*](https://www.last.fm/music/Victor+Mendivil,+Fenix+Flexin/_/P.V.)  
+_Reproduciendo ahora_
 <!--LASTFM:END-->
