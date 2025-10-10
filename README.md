@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Orula** — Victor Mendivil · *Orula*](https://www.last.fm/music/Victor+Mendivil/_/Orula)  
-_2025-10-04 08:43_
+[**El Wero Scarface V24** — EI Comando Exclusivo · *Maldito y Bendito*](https://www.last.fm/music/EI+Comando+Exclusivo/_/El+Wero+Scarface+V24)  
+_Reproduciendo ahora_
 <!--LASTFM:END-->
