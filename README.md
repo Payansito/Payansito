@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Me Paseo** — Victor Mendivil, Oscar Maydon · *Tutankamon*](https://www.last.fm/music/Victor+Mendivil,+Oscar+Maydon/_/Me+Paseo)  
-_Reproduciendo ahora_
+[**Capos** — Victor Mendivil, Orlando Verdugo · *Tutankamon*](https://www.last.fm/music/Victor+Mendivil,+Orlando+Verdugo/_/Capos)  
+_2025-10-10 08:06_
 <!--LASTFM:END-->
