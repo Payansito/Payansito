@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**P.V.** — Victor Mendivil, Fenix Flexin · *Tutankamon*](https://www.last.fm/music/Victor+Mendivil,+Fenix+Flexin/_/P.V.)  
+[**Corum** — Victor Mendivil, Angel Almaguer · *Tutankamon*](https://www.last.fm/music/Victor+Mendivil,+Angel+Almaguer/_/Corum)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
