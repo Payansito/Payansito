@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Aquilesorganigrama** — Grupo 360 · *Aquilesorganigrama*](https://www.last.fm/music/Grupo+360/_/Aquilesorganigrama)  
+[**La Barda** — Grupo 360 · *La Barda*](https://www.last.fm/music/Grupo+360/_/La+Barda)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
