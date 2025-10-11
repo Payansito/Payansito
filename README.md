@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**La Barda** — Grupo 360 · *La Barda*](https://www.last.fm/music/Grupo+360/_/La+Barda)  
-_Reproduciendo ahora_
+[**RZR** — Victor Mendivil, Alemán · *Tutankamon*](https://www.last.fm/music/Victor+Mendivil,+Alem%C3%A1n/_/RZR)  
+_2025-10-11 01:13_
 <!--LASTFM:END-->
