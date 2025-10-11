@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Bob Patiño** — Jimmy Guzman, Ismael CM · *Bob Patiño*](https://www.last.fm/music/Jimmy+Guzman,+Ismael+CM/_/Bob+Pati%C3%B1o)  
-_2025-10-11 02:32_
+[**Dámaso** — Gerardo Ortíz · *El Primer Ministro (Version Deluxe)*](https://www.last.fm/music/Gerardo+Ort%C3%ADz/_/D%C3%A1maso)  
+_2025-10-11 03:00_
 <!--LASTFM:END-->
