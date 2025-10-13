@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Dámaso** — Gerardo Ortíz · *El Primer Ministro (Version Deluxe)*](https://www.last.fm/music/Gerardo+Ort%C3%ADz/_/D%C3%A1maso)  
-_2025-10-11 03:00_
+[**Capos** — Victor Mendivil, Orlando Verdugo · *Tutankamon*](https://www.last.fm/music/Victor+Mendivil,+Orlando+Verdugo/_/Capos)  
+_2025-10-13 03:52_
 <!--LASTFM:END-->
