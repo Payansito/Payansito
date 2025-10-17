@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Capos** — Victor Mendivil, Orlando Verdugo · *Tutankamon*](https://www.last.fm/music/Victor+Mendivil,+Orlando+Verdugo/_/Capos)  
-_2025-10-13 03:52_
+[**De Jordan** — WICKED OUTSIDE, 7EVEN STARS · *De Jordan*](https://www.last.fm/music/WICKED+OUTSIDE,+7EVEN+STARS/_/De+Jordan)  
+_Reproduciendo ahora_
 <!--LASTFM:END-->
