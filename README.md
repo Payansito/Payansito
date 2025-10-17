@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**De Jordan** — WICKED OUTSIDE, 7EVEN STARS · *De Jordan*](https://www.last.fm/music/WICKED+OUTSIDE,+7EVEN+STARS/_/De+Jordan)  
+[**Belihouse** — WICKED OUTSIDE, 7EVEN STARS · *Belihouse*](https://www.last.fm/music/WICKED+OUTSIDE,+7EVEN+STARS/_/Belihouse)  
 _Reproduciendo ahora_
 <!--LASTFM:END-->
