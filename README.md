@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Anubis** — WICKED OUTSIDE · *Anubis*](https://www.last.fm/music/WICKED+OUTSIDE/_/Anubis)  
-_2025-10-19 01:18_
+[**Tu No Vive Asi (feat. Mambo Kingz & DJ Luian)** — Bad Bunny, Arcángel · *Tu No Vive Asi (feat. Mambo Kingz & DJ Luian)*](https://www.last.fm/music/Bad+Bunny,+Arc%C3%A1ngel/_/Tu+No+Vive+Asi+(feat.+Mambo+Kingz+&+DJ+Luian))  
+_2025-10-19 01:54_
 <!--LASTFM:END-->
