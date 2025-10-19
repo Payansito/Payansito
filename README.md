@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Belihouse** — WICKED OUTSIDE, 7EVEN STARS · *Belihouse*](https://www.last.fm/music/WICKED+OUTSIDE,+7EVEN+STARS/_/Belihouse)  
-_2025-10-17 07:41_
+[**Anubis** — WICKED OUTSIDE · *Anubis*](https://www.last.fm/music/WICKED+OUTSIDE/_/Anubis)  
+_2025-10-19 01:18_
 <!--LASTFM:END-->
