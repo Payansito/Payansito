@@ -36,6 +36,6 @@ Español (nativo) · Inglés (B2)
 
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
-[**Rango** — EI Comando Exclusivo · *Maldito y Bendito*](https://www.last.fm/music/EI+Comando+Exclusivo/_/Rango)  
-_2025-10-25 01:35_
+[**El Chamuko** — EI Comando Exclusivo · *Maldito y Bendito*](https://www.last.fm/music/EI+Comando+Exclusivo/_/El+Chamuko)  
+_Reproduciendo ahora_
 <!--LASTFM:END-->
