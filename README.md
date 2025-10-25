@@ -37,5 +37,5 @@ Español (nativo) · Inglés (B2)
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
 [**Rango** — EI Comando Exclusivo · *Maldito y Bendito*](https://www.last.fm/music/EI+Comando+Exclusivo/_/Rango)  
-_2025-10-23 06:57_
+_2025-10-25 01:35_
 <!--LASTFM:END-->
