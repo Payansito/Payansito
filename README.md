@@ -37,5 +37,5 @@ Español (nativo) · Inglés (B2)
 ### 🎧 Última canción que escuché
 <!--LASTFM:START-->
 [**El Chamuko** — EI Comando Exclusivo · *Maldito y Bendito*](https://www.last.fm/music/EI+Comando+Exclusivo/_/El+Chamuko)  
-_Reproduciendo ahora_
+_2025-10-25 05:05_
 <!--LASTFM:END-->
